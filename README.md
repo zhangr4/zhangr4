@@ -4,7 +4,7 @@
 
 ### Fun fact
 
-- 2024-Dec-29, I have one xhs comment got 10k+ like!!!
+- 2024-Dec-29, I have one xhs comment got 10k+ Likes!!!
 
 ### 📊 Stats
 
