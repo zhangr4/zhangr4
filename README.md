@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 - 🔭 I’m still alive
+- 🎾 I'm currently learning tennis
 
 ### Fun fact
 
